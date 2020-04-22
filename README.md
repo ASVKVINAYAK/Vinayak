@@ -14,6 +14,5 @@ Currently studying B.tech @ CSE 1st year in ITER SOA Bhubaneshwar
 ### Contact Me
 
 Mobile no: 9635563220
-
 Email: asvkvinayak@gmal.com
 
